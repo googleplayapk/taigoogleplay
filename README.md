@@ -1,17 +1,12 @@
 # taigoogleplay
 Tải Google Play APK cửa hàng game ứng dụng android hay miễn phí
-<a href="http://www.tai-google-play.com/">Tai Google Play</a> như thế nào ???
-<a href="http://www.tai-google-play.com/2014/11/tai-clean-master-tang-toc-ien-thoai-180.html">Tai Clean Master</a> là cửa hàng miễn phí ứng dụng và game lớn nhất cho hệ điều hành Android. 
-Vì vậy điện thoại của bạn không thể thiếu <a href="http://www.tai-google-play.com/2014/08/tai-google-play-tai-ch-play.html">Tai CH Play</a> được đúng không.
- Nhưng nếu máy bạn chưa cài đặt ứng dụng này thì phải làm sao? 
-Có rất nhiều cách, có thể bạn sẽ lên google để tìm kiếm search. 
-Nhưng có một cách đơn giản hơn nhiều đó là hãy truy cập ngay website taichplayvn, ngay trên trang chủ các bạn sẽ thấy nút bấm “Tải Về”. 
-Chỉ cần nhấn vào đó (Click <a href="http://www.taiappstorevn.com">Tai App Store VN</a> ) là bạn đã download cả kho giải trí appvn tuyệt vời về với dế yêu của mình rồi.
-Cách tải <a href="http://tai-google-play.blogspot.com/2014/08/du-speed-booster-cleaner.html">DU Speed Booster</a> về điện thoại
-Cách tải <a href="http://tai-google-play.blogspot.com/2016/05/tai-google-play-apk-2016.html">Google Play APK 2016</a> cho ipad, cách tải CH Play cho nokia x2, cách tải ch play cho iphone 4
-Cho dù bạn đang dùng điện thoại đắt tiền hay bình dân, Nokia hay Sam Sung, iphone, Sony, HK phone hay ipad bạn hoàn toàn yên tâm khi tải CH Play trên taichplayvn vì đây là một website uy tín và đáng tin cậy. 
-Việc download file <a href="http://tai-google-play.blogspot.com/2016/06/tai-dich-vu-cua-google-play.html">Tai dich vu Google Play</a> .APK về máy tinh hay cho điện thoại hoàn toàn miễn phí 100%. 
-Xem thêm: <a href="http://www.tai-uc-browser.mobi/">Tai UC Browser</a>, <a href="http://www.taivefacebooklite.mobi/">Tai Facebook Lite</a>, <a href="http://www.tai-ch-play.com/">Tai Ch Play</a>, <a href="http://www.zalofree.com/">Tai Zalo mien phi</a>
+Chào các bạn, Có lẽ chắc các bạn cũng đã quá gần gũi và quen thuộc với google play phải không nào. 
+Google Play hay còn gọi là CH Play là nơi lưu trữ tất cả các trò chơi và ứng dụng của các nhà sản xuất game từ bé đến lớn trên toàn thế giới này. Google Play còn là kho sách khổng lồ với hàng triệu sách online phục vụ người dùng trên toàn cầu bao gồm cả sách free lẫn trả phí.
+Ngoài ra Google Play còn cung cấp tới người dùng những sản phẩm giải trí khác như: ứng dụng Android, Kho hình nền, nhạc chuông độc đáo, những bài hát hay được yêu thích hay những bộ phim truyền hình nổi tiếng nhất. Thật là một kho giải trí hoàn mỹ phải không ạ. Chưa hết đâu nhé, khi sử dụng ch play bạn sẽ còn được trải nghiệm nhiều hơn những gì bạn nghĩ chính vì thế mà hãy vào <a href="http://www.tai-ch-play.com/">tai-ch-play.com/</a> để download ngay phiên bản ch play về máy các bạn nhé.
+Những tính năng hay:
+Kho sách hấp dẫn. Nếu bạn duyệt qua danh sách, chủ đề sách online và tìm thấy những cuốn sách hay, bạn có thể tải và đọc miễn phí hoặc mua chúng về theo ý thích của bạn. Đương nhiên bạn có thể chia sẻ chúng ngay với bạn bè để đọc free cùng bạn, thật hay là google play cũng hỗ trợ điều đó. Thật là tuyệt vời phải không nào. 
+Kho phim hay. Với những bộ phim hay của các hãng sản xuất phim nổi tiếng trong và ngoài nước. Trước khi mua bạn có thể xem các bản video ngắn giới thiệu hoặc bình luận đánh giá của người dùng khác xem có thực sự nên tải về hay không nhé
+
 
 
 
